@@ -1,1 +1,1 @@
-# https-oleksandr31.github.io-
+# https://oleksandr31.github.io/life/
